@@ -33,4 +33,4 @@ Podemos atualizar esta Política de Privacidade de tempos em tempos. Notificarem
 
 ## Contato
 
-Se você tiver alguma dúvida sobre esta Política de Privacidade, entre em contato conosco: contato@legaltripimoveis.com
+Se você tiver alguma dúvida sobre esta Política de Privacidade, entre em contato conosco: contato@tripimoveis.com.br
